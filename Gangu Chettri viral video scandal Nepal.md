@@ -33,5 +33,3 @@ Whether or not the video is authentic, the damage to one's reputation in such ca
 Conclusion As the dust begins to settle around the Gangu Chettri Kanda, the bigger questions remain: How can we protect individuals from such digital violations? What role should platforms like Telegram play in preventing such incidents? And how can society shift its focus from shaming victims to holding perpetrators accountable?
 
 For now, the case remains a viral example of how quickly private lives can be dragged into the spotlight—and how important it is to promote digital empathy and responsibility in a hyperconnected world.
-
-
