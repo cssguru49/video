@@ -1,8 +1,8 @@
 # gangu chettri kanda telegram gangu chhetri kanda telegram
 
-🔴🌍📺📱👉WA𝚃CH Now==►► CLICK HERE TO V𝚒ral V𝚒deos 𝚆𝙰𝚃𝙲𝙷 NOW
+[🔴🌍📺📱👉WA𝚃CH Now==►► CLICK HERE TO V𝚒ral V𝚒deos 𝚆𝙰𝚃𝙲𝙷 NOW](https://tinyurl.com/4ctypr6p)
 
-🔴🌍📺📱👉WA𝚃CH Now==►► CLICK HERE TO V𝚒ral V𝚒deos 𝚆𝙰𝚃𝙲𝙷 NOW
+[🔴🌍📺📱👉WA𝚃CH Now==►► CLICK HERE TO V𝚒ral V𝚒deos 𝚆𝙰𝚃𝙲𝙷 NOW](https://tinyurl.com/4ctypr6p)
 
 Gangu Chettri Kanda: The Viral Telegram Controversy That Shocked Nepali Social Media
 
